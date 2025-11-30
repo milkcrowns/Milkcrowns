@@ -1,9 +1,7 @@
 <!--Oh god oh god i'm so gay about pv and Mordecai Heller... hehe .-->
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=D4CCC1&label=Espresso+++"/>
-        <p align="center">                      <img src="https://files.catbox.moe/eg4d3j.gif">
-    <p align="center">
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=D4CCC1&label=Tears+++"/>
 <p align="center"> 
 <img src="https://files.catbox.moe/v0nerv.png">
     <p align="center">
@@ -15,6 +13,8 @@
    ——————————⟣⠀ <a href="https://rentry.co/FoolsUmbra">rentry</a> ⠀⟢——————————
          <br> ${\textsf{\color{#444C59} INFP-T :3 .}}$ 
  <br>
+   <p align="center">                      <img src="https://files.catbox.moe/eg4d3j.gif">
+    <p align="center">
   </p>
 
 <p align="center">
