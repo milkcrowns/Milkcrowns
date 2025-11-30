@@ -1,8 +1,11 @@
 <!--Oh god oh god i'm so gay about pv and Mordecai Heller... hehe .-->
 <p align="center"> 
     <p align="center">
-<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=D4CCC1&label=Espresso+++"/>  
-<p align="center">                      <img src="https://files.catbox.moe/v0nerv.png">
+<img src="https://komarev.com/ghpvc/?username=FoolsUmbra&appledeception=flat-square&color=D4CCC1&label=Espresso+++"/>
+        <p align="center">                      <img src="https://files.catbox.moe/eg4d3j.gif">
+    <p align="center">
+<p align="center"> 
+<img src="https://files.catbox.moe/v0nerv.png">
     <p align="center">
    <br> ${\textsf{\color{#D4CCC1}heaven　　She　/　her　✦　c + h　comf　✦　sign ata　/　straw}}$ 
  <br> 
@@ -16,12 +19,13 @@
 
 <p align="center">
     
-[![219-sin-t-tulo-20250913175453.png](https://i.postimg.cc/523Fgnsg/219-sin-t-tulo-20250913175453.png)](https://postimg.cc/cvvH4Myt)
+<p align="center">                      <img src="https://files.catbox.moe/icn7k5.png">
+    <p align="center">
  <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mdkjn6e3xcotzoxduxj4pujye4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=b3b09d&bar_color_cover=false">
   </a>
  </p>
-
-[![219-sin-t-tulo-20250913175447.png](https://i.postimg.cc/2SmZnP73/219-sin-t-tulo-20250913175447.png)](https://postimg.cc/gnSjWt5P)
+<p align="center">                      <img src="https://files.catbox.moe/6ea6a9.png">
+    <p align="center">
 
